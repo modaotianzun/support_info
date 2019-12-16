@@ -1,25 +1,21 @@
 # Support Infomation
-
+# Warrior's Elimination Adventure
 
 
 If you have any questions, please contact us at the email address below and we will answer you as soon as possible.
 
-Support email ：WarDrumLegendTik@yeah.net
-
+Support email ：WarriorsEliminationAdventure@yeah.net
 
 
 ## About
 
-**War Drum Legend Tik** 
+**Warrior's Elimination Adventure** 
 
-War Drum Legend Tik Start here and try this simple game.
+Give you the simplest joy with the most classic gameplay!
 
-Gameplay: Find the same characters and click on them to complete a elimination. Eliminate all the same characters in the game and pass the level.
+Warrior's Elimination Adventure is a elimination game with beautiful graphics, simple gameplay, and endless fun. Simply click on two identical cards to complete the elimination!
 
-Each level is a new challenge, with shorter time, more characters, more difficulty and more fun!
-Come challenge yourself and see how many levels you can play.
-
-How about it? Does it sound exciting and interesting? If you are interested, download it now and challenge yourself!
+As a puzzle elimination game, while giving people a relaxed and enjoyable gaming experience, it is also very challenging! If you want to play higher scores and pass more levels, you need to activate your brain more. When you complete the shorter time, the more cards you eliminate, the higher your score!
 
 
 ## Privacy Policy
